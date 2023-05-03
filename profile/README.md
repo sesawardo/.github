@@ -1,3 +1,3 @@
 ```
-Sesa Wardo / No.6 Ward / Палата No 6
+Sesa Wardo / Ward No.6 / Палата No 6
 ```
